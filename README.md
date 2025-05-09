@@ -18,4 +18,4 @@ Created by whoisdelta.
 [https://discord.gg/kBtXtK7dc8](discord.gg/dtstore)
 
 ## Preview 
-![Preview Image](https://imgur.com/OP6EvLq)
+https://imgur.com/OP6EvLq
