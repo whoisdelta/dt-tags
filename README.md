@@ -15,7 +15,7 @@
 Created by whoisdelta.
 
 ## Support
-[https://discord.gg/kBtXtK7dc8](discord.gg/dtstore)
+[https://discord.gg/dtstore](discord.gg/dtstore)
 
 ## Preview 
 https://imgur.com/OP6EvLq
